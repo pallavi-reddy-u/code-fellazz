@@ -168,6 +168,7 @@ https://github.com/pallavi-reddy-u/code-fellazz/assets/158585122/9736cfa3-faa1-4
 
 
 
+[vitals.pptx](https://github.com/pallavi-reddy-u/code-fellazz/files/14918079/vitals.pptx)
 
 
 
